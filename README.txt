@@ -1,2 +1,2 @@
-# Hi this is Aviral Gupta(AG)
+# Hi this is Aviral(AG)
 # data
